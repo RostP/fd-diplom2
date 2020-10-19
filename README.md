@@ -1,1 +1,0 @@
-# fd-diplom2
